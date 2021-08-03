@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @untitledhappy
+- 👀 I’m interested in coding
+- 🌱 I’m currently learning to code
+- 💞️ I’m looking to collaborate on anything
+- learning in 🦗 grasshopper
